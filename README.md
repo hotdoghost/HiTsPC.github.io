@@ -1,1 +1,1 @@
-# HiTsPC.github.io
+# hotdoghost.github.io
